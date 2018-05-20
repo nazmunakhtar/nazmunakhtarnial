@@ -1,0 +1,2 @@
+# nazmunakhtarnial
+first assignment 
